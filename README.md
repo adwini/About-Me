@@ -1,5 +1,5 @@
-# 💫 About Me:
-Aspiring ComsciGamit
+# 💫 Aspiring ComsciGamit
+
 
 
 ## 🌐 Socials:
